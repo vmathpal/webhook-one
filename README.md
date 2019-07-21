@@ -6,3 +6,6 @@ Vidisha say talk in english you dont have any manners
 Is this how she is supposed to talk to her mom
 lets check with her Principal
 what is her principals thought on it?
+Vidisha is bandariya
+she is very cute
+adorable
